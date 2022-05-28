@@ -1,10 +1,8 @@
-# Очень вредные советы
+# Очывасоветы
 Нет приятнее занятья,
 Чем в носу поковыряться.
-Всем уasfasfasdfasdfasdfasdf
-dsfasdfasd
-sadfasdfas
-dsfasdfsdfsddf
+Всем уasfasfвыаdfasdfasdf
+dsfaываfasd
+ываыdfsddf
 asdf
-asdf
-asdfas
+ываыва
